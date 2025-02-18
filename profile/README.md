@@ -2,9 +2,9 @@
 
 𝙲𝚞e𝚟𝚊𝚗𝚊3 - 𝚅e𝚛 Capitán América: Brave New World 𝚙e𝚕í𝚌𝚞𝚕𝚊 𝙲𝚘𝚖𝚙𝚕e𝚝𝚊 𝙴𝚜𝚙𝚊ñ𝚘𝚕 𝙻𝚊𝚝𝚒𝚗𝚘 𝙾𝚗𝚕𝚒𝚗e. 1080𝚙 - 720𝚙 - 4𝙺 𝚌𝚊𝚜𝚝e𝚕𝚕𝚊𝚗𝚘 𝚘𝚗𝚕𝚒𝚗e 𝚐𝚛𝚊𝚝𝚒𝚜​.
 
-➤►🌍📺📱👉  [Capitán América: Brave New World 𝙿𝚎𝚕𝚒𝚌𝚞𝚕𝚊 𝙲𝚘𝚖𝚙𝚕𝚎𝚝𝚊 𝙾𝚗𝚕𝚒𝚗𝚎](#LP#)
+➤►🌍📺📱👉  [Capitán América: Brave New World 𝙿𝚎𝚕𝚒𝚌𝚞𝚕𝚊 𝙲𝚘𝚖𝚙𝚕𝚎𝚝𝚊 𝙾𝚗𝚕𝚒𝚗𝚎](https://rb.gy/c8w2w7)
 
-➤►🌍📺📱👉  [Capitán América: Brave New World 𝙿𝚎𝚕𝚒𝚌𝚞𝚕𝚊 𝙲𝚘𝚖𝚙𝚕𝚎𝚝𝚊 𝙾𝚗𝚕𝚒𝚗𝚎 𝙷𝙳](#LP#)
+➤►🌍📺📱👉  [Capitán América: Brave New World 𝙿𝚎𝚕𝚒𝚌𝚞𝚕𝚊 𝙲𝚘𝚖𝚙𝚕𝚎𝚝𝚊 𝙾𝚗𝚕𝚒𝚗𝚎 𝙷𝙳](https://rb.gy/c8w2w7)
 
 𝙻𝚘 𝚚𝚞𝚎 𝚑a𝚌𝚎 𝚚𝚞𝚎 Capitán América: Brave New World 𝚛𝚎a𝚕𝚖𝚎𝚗𝚝𝚎 𝚎𝚜𝚙𝚎𝚌𝚒a𝚕 𝚎𝚜 𝚜𝚞 𝚌a𝚙a𝚌𝚒𝚍a𝚍 𝚙a𝚛a 𝚌𝚘𝚗𝚎𝚌𝚝a𝚛 𝚌𝚘𝚗 𝚎𝚕 𝚙ú𝚋𝚕𝚒𝚌𝚘. 𝙻a 𝚙𝚎𝚕í𝚌𝚞𝚕a 𝚎𝚡𝚙𝚕𝚘𝚛a 𝚝𝚎𝚖a𝚜 𝚞𝚗𝚒𝚟𝚎𝚛𝚜a𝚕𝚎𝚜 𝚌𝚘𝚖𝚘 𝚕a a𝚖𝚒𝚜𝚝a𝚍, 𝚕a 𝚏a𝚖𝚒𝚕𝚒a 𝚢 𝚕a 𝚋ú𝚜𝚚𝚞𝚎𝚍a 𝚍𝚎𝚕 𝚜𝚎𝚗𝚝𝚒𝚍𝚘 𝚎𝚗 𝚕a 𝚟𝚒𝚍a. 𝙻𝚘𝚜 𝚙𝚎𝚛𝚜𝚘𝚗a𝚓𝚎𝚜 𝚜𝚘𝚗 𝚌𝚘𝚖𝚙𝚕𝚎𝚓𝚘𝚜 𝚢 a𝚞𝚝𝚎𝚗𝚝𝚒𝚌𝚘𝚜, 𝚢 𝚜𝚞𝚜 𝚑𝚒𝚜𝚝𝚘𝚛𝚒a𝚜 𝚜𝚘𝚗 a 𝚟𝚎𝚌𝚎𝚜 𝚒𝚗𝚜𝚙𝚒𝚛a𝚍𝚘𝚛a𝚜, a 𝚟𝚎𝚌𝚎𝚜 𝚍𝚘𝚕𝚘𝚛𝚘𝚜a𝚜, 𝚙𝚎𝚛𝚘 𝚜𝚒𝚎𝚖𝚙𝚛𝚎 𝚜𝚘𝚗 𝚜𝚒𝚗𝚌𝚎𝚛a𝚜.
 
